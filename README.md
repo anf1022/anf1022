@@ -15,7 +15,7 @@ instas:
 
 or email me: afarmiga@ufl.edu
 
-tell me if you found me from here because this feels to nerdy to be real
+tell me if you found me from here because this feels to0 nerdy to be real
 
 
 
